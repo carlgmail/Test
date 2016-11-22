@@ -1,5 +1,5 @@
 Hi
-This Workshop is available for 15 Trainee
+This Workshop is available for 16 Trainee
 
 The attenddee are :
 1 . Andang Rian Dimas
@@ -19,4 +19,9 @@ The attenddee are :
 15. Bagus Wahyudi
 16. I Putu Yogi Pratama Putra
 
-Please joinning the session so we can try at least.
+You should join the training, please do!!
+
+Please do the absent!!!
+
+And Join the show!!!
+Let's THE SHOW BEGINNNN!!!!!
